@@ -65,7 +65,7 @@ https://masu.com.vn/may-dem-tien-oudis/
 
 https://masu.com.vn/may-dem-tien-balion/
 
-![máy đếm tiền MASU 888](Máy đếm tiền Masu 888.jpg)
+![máy đếm tiền MASU 888](Máy%20đếm%20tiền%20Masu%20888.jpg)
 
 ![máy đếm tiền MASU 999](may-dem-tien-masu-99912213.jpg)
 
